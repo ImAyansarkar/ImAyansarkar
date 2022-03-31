@@ -4,7 +4,7 @@
 
 
 
-## I'm an engineering student and to-be a developer and passionate in Aritificial Intelligence and Machine Learning , C++ developer and Opensource contributor. 
+## I'm an engineering student and to-be a developer and passionate in Learning Newskills , C++ developer and Opensource contributor. 
 
 
 
