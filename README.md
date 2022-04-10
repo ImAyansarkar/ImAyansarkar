@@ -14,7 +14,7 @@
 - 🌱 I’m currently learning Web development and Graphics design
 - 👯 I’m looking to collaborate with new project ideas
 - 💬 Ask me about Tech, sports and bikes and cars
-- 📫 How to reach me: twitter : @AyanSar51703028
+- 📫 How to reach me: ayansarkar2402@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: love to race 
 
